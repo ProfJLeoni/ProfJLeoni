@@ -1,6 +1,6 @@
 ## Olá! 👋
 
-Bem vindo ao meu paerfil!
+Bem vindo ao meu perfil!
 
 Eu me chamo Leoni Tiago
 
